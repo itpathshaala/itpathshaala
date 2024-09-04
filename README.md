@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ITP
 - 💞️ I’m looking to collaborate with Students
 - 📫 How to reach me - https://itpathshaala.in
-- 😄 Pronouns: ...
+- 😄 Pronouns: - https://q3schools.com/
 - ⚡ Fun fact: ...
 
 <!---
